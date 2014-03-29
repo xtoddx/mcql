@@ -32,7 +32,7 @@ properly during the warranty period, Madison County Quick Lube will install a
 new oil filter and refil any fluids listed on your invoice. All products meet or
 exceed manufacturer's requirements for warranty.
 
-Madison County Quick Lube warrants that tose services and products will be free
+Madison County Quick Lube warrants that those services and products will be free
 from defects in materials or workmanship for either three months or 3,000 miles
 of use, whichever comes first measured from the date of services or mileage
 shown on your invoice. This warranty is conditioned on the vehicle receiving
@@ -44,7 +44,7 @@ This warranty will not apply if the original invoice indicates the customer
 declined to authorize specific labor, parts, or services required for
 satisfactory performance. The warranty does not apply when the customer or your
 representative tampers with or alters manufacturer's original equipment or when
-correctie action is taken without prior written approval from Madison County
+corrective action is taken without prior written approval from Madison County
 Quick Lube. The warranty does not cover loss of time, inconvenience, loss of
 use of vehicle, or other incidental or consequential damages. The warranty is
 given in lieu of other express or implied warranty.
