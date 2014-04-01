@@ -22,15 +22,15 @@ This warranty is made and will be serviced by Madison County Quick Lube.
 <h3>Who is covered</h3>
 
 This warranty extends only to the owner and motor vehicle identified on the
-invoice. It applies only during the warrnaty period.
+invoice. It applies only during the warranty period.
 
 <h3>What is covered by the warranty</h3>
 
 The warranty covers your service by Madison County Quick Lube and all services
 and products shown on your invoice. If the oil filter or fluids fail to perform
 properly during the warranty period, Madison County Quick Lube will install a
-new oil filter and refil any fluids listed on your invoice. All products meet or
-exceed manufacturer's requirements for warranty.
+new oil filter and refill any fluids listed on your invoice. All products meet
+or exceed manufacturer's requirements for warranty.
 
 Madison County Quick Lube warrants that those services and products will be free
 from defects in materials or workmanship for either three months or 3,000 miles
